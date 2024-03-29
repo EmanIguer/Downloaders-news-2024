@@ -6,7 +6,7 @@
 
 <img src="https://github.com/EmanIguer/Downloaders-news-2024/blob/main/yandexjapdl.png"/>
 
-***yandex vpn download video***
+***yandex vpn download***
 
 <img src="https://github.com/EmanIguer/Downloaders-news-2024/blob/main/yandexVPN.png"/>
 
